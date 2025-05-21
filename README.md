@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Html, css, c#**
 
-- 📫 How to reach me **Andumitev@gmail.com**
+- 📫 How to reach me **Andym1tev2020@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
